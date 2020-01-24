@@ -16,12 +16,16 @@ To know more about this place
 2. Its a heart shaped lake
 ![image](https://www.nkrealtors.com/blog/wp-content/uploads/2018/08/Hussain-Sagar-Lake-730x410.jpg)
 credit to nkrealtors.com
-
 [link](https://www.hyderabad.org.uk/lakes/hussain-sagar-lake.html)
 
 ## SalarJung Museum
 - It is one of the largest museum in India
 ![image](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/Salar_Jung_Museum_Hyderabad_Front_View.jpg/800px-Salar_Jung_Museum_Hyderabad_Front_View.jpg)
 
+credit to wikipedia.com
 
 [link](http://salarjungmuseum.in/html/history.html)
+
+
+## Golconda fort
+[britannica](https://www.britannica.com/place/Golconda-historical-city-India)
